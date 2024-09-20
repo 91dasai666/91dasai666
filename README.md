@@ -3,10 +3,15 @@
 91大赛最新地址（09/20更新）
 
 免翻墙入口：https://cgds03.com
+
 备用入口：https://cgds02.com
+
 永久主页需翻墙：https://dycg66.com
+
 官方分享扣群：[点击加入](http://g.npawxqkyxn40.cn/s/wRa5)
+
 官方推特：https://x.com/douyinchigua
+
 官方电报（telegram）群：https://t.me/dycg03
 
 新地址获取方法一： 发送任意内容至 dycgdizhi@gmail.com
