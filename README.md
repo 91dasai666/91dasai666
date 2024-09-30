@@ -1,14 +1,14 @@
 - 👋 抖音吃瓜重生为91大赛
 
-91大赛最新地址（09/20更新）
+91大赛最新地址（09/30更新）
 
-免翻墙入口：https://cgds03.com
+免翻墙入口：https://91daily01.com
 
-备用入口：https://cgds02.com
+备用入口：https://cgds03.com
 
 永久主页需翻墙：https://dycg66.com
 
-官方分享扣群：[点击加入](http://g.npawxqkyxn40.cn/s/wRa5)
+官方分享扣群：[点击加入](http://i.yvfhvaee85.cn/s/suAd)
 
 官方推特：https://x.com/douyinchigua
 
